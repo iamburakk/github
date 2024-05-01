@@ -1,1 +1,7 @@
-//naber kanka
+//naber kanka burakkk bennn
+
+
+
+
+
+
